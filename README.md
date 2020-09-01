@@ -1,4 +1,3 @@
-# Hi!
-My name is Audrey.
->I am from Dunman High School.
->I like writing stories.
+# Hey sisters!
+I'm from Dunman High School.
+To be honest I do not know what else to write. So bye!
